@@ -2,6 +2,8 @@
 
 This document holds the notes on Qur'anic weekly tafsir (exegesis) discussions held :
 
+The program began on: 14-June-2020:
+
 Initial Contributors:
 
 * Syed Ali Mohammed
@@ -16,7 +18,7 @@ The Tafseer's that were referred to were:
 * Tafsir-e-Namoona
 * The Study Qur'an \(By Hossein Nasr\)
 
-The program began on: 14-June-2020:
+
 
 
 
