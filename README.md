@@ -1,6 +1,6 @@
 # Introduction
 
-This document holds the notes on Qur'anic weekly tafsir discussions held :
+This document holds the notes on Qur'anic weekly tafsir (exegesis) discussions held :
 
 Initial Contributors:
 
