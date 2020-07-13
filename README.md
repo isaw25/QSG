@@ -14,7 +14,7 @@ Every week around 5 verses of the Holy Qur'an , were studied in the light of exi
 
 The Tafseer's that were referred to were:
 
-* Tafsir -e-Noor
+* Tafsir -e-Noor.
 * Tafsir-e-Namoona
 * The Study Qur'an \(By Hossein Nasr\)
 
