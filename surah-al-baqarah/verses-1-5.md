@@ -6,8 +6,6 @@
 
 Shaan-e-nuzul: First and last verses to be revealed in Madinah.
 
-1-7 surahs -comparable to Torah.
-
 \| الم - 2:1 \|
 
 Alif.laam.Meem
