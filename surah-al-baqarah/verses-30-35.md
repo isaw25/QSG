@@ -67,4 +67,5 @@ attributed to Angels that "God never creates a thing except that we are more nob
 2:34
 And when We said to the angels, “Prostrate unto Adam,” they
 prostrated, save Iblīs. He refused and waxed arrogant, and was among
-the disbelievers.
+the disbelievers...
+cd 
