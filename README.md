@@ -15,7 +15,8 @@ Every week around 10 verses of the Holy Qur'an , were studied in the light of ex
 The Tafseer's that were referred to were:
 
 * Tafsir -e-Noor.
-* Tafsir-e-Namoona
+* Tafsir-e-Namoona \([http://tafseerenamoona.net/](http://tafseerenamoona.net/)   ; in Urdu \)
+* Tafsir Al Mizan \( [https://almizan.org/](https://almizan.org/)\)
 * The Study Qur'an \(By Hossein Nasr\)
 * Sayyid Abul Ala Maududi - Tafhim al-Qur'an - The Meaning of the Qur'an
 
